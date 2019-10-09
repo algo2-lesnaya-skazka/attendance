@@ -6,3 +6,4 @@ Nikita Lagutin lagutinnikita291@gmail.com
 Uliana Chentsova Siora2203@gmail.com
 Sasha Lashch sasha.lash@bk.ru
 Yuliya Zoshik yuliayazoshik@yandex.ru
+Sergey Repin
