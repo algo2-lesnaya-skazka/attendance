@@ -7,3 +7,7 @@ Uliana Chentsova Siora2203@gmail.com
 Sasha Lashch sasha.lash@bk.ru
 Yuliya Zoshik yuliayazoshik@yandex.ru
 Sergey Repin
+Aleksandr Leshev
+Andrei 
+Michail Chernega
+
