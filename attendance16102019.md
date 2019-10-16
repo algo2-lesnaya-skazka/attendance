@@ -7,3 +7,4 @@ Sergey Repin Sergey.Rep.07@mail.ru
 Andrey Lyubimenko andreykyubimenko@mail.ru
 Kirill Kholopov kir.kholopov@yandex.ru
 Maksim Stepanov maksim_stepanov_06@mail.ru
+Rion Shekhovtosv rion01045@gmail.com
