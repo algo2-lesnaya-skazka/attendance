@@ -5,3 +5,4 @@ Michail Chernega kakas.83@mail.ru
 Yuliyu Zoshik yuliyuzoshik@yundex.ru
 Sergey Repin Sergey.Rep.07@mail.ru
 Andrey Lyubimenko andreykyubimenko@mail.ru
+Konstantin Kholopov kir.kholopov@yandex.ru
