@@ -8,3 +8,5 @@ Andrey Lyubimenko andreykyubimenko@mail.ru
 Kirill Kholopov kir.kholopov@yandex.ru
 Maksim Stepanov maksim_stepanov_06@mail.ru
 Rion Shekhovtosv rion01045@gmail.com
+Sasha Leshev shashakrutoy337@mail.ru
+Andrei Grachev
