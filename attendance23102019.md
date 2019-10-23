@@ -4,3 +4,4 @@ Kirill Kholopov kir.kholopov@yandex.ru<br>
 Maxim Stepanov maksim_stepanov_06@mail.ru<br>
 Rodion Moiseev grachyovandryushka@yandex.ru
 Rion Shekhovtsov rion01045@gmail.com
+Yaroslav Bespalov bespalovyarik@yandex.ru
