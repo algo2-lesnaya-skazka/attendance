@@ -1,1 +1,1 @@
-Konstantin Kholopov algo.lesnya.skazka@yandex.ru
+Konstantin Kholopov algo.lesnya.skazka@yandex.ru<br>
