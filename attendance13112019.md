@@ -1,10 +1,1 @@
 Konstantin Kholopov algo.lesnaya.skazka@yandex.ru<br>
-Andrey Lyubimenko andreylyubimenko@mail.ru
-Maksim Stepanov maksim_stepanov_06@mail.ru<br>
-Nkita Lagutin lagutinnikita291@yandex.ru<br>
-Konstantin Kholopov algo.lesnaya.skazka@yandex.ru<br>  
-RMoiseev grachyovandreushka@yandex.ru
-Sergey Repin Ser.Repin.07@mail.ru<br>
-Uliana Chentsova siora2203@gmail.com<br>
-Evseev Aleksei 210207alex@gmail.com
-Yulia zoshchik algo.lesnaya.skazka@yandex.ru<br>
