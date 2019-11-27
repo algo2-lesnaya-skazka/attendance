@@ -4,3 +4,4 @@ Andrey Grachev algo.lesnaya.skazka@yandex.ru<br>
 Michail Chernega kakas.83@mail.ru<br>
 Maksim Stepanov maksim_stepanov_06@mail.ru<br>
 Nikita Lagutin lagutinnikita291@yandex.ru<br>
+Rion Shekhovtsov rion01045@gmail.com<br>
